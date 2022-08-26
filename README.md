@@ -1,0 +1,2 @@
+# voidreader.github.io
+Blog
